@@ -15,5 +15,9 @@
 
 ## Saturday, June 16
 
+### Dreycey
+
+ * Posting just to show I have seen and know how to use the journal!
+
 ## Sunday, June 17
 
